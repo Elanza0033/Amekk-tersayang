@@ -1,0 +1,1 @@
+# Amekk-tersayang
